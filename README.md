@@ -11,3 +11,22 @@ f  bfgb fgb f fgb fg fgb fg gh gh
 sdc sdc sdc sdc sdc sdc sdc sdc 
 sd csdc sdc sdc sdc sdcsdc sdc sdc sd
 sdc sd c sdcsdc sdc sdcsdcsdc sdcsdcsdcsdcsdc
+df bdfb dfb dfb dfb dfb dfb dfb 
+dfb df
+ bdf
+ b
+ d
+ b
+ dfb
+ df
+ bd
+ fbdfbdfb df 
+ dfb
+  dfb
+  dfb
+  dfbd
+  fb df
+  bdfbdfbdf
+  b dfbdfb 
+  dfb dfb
+  dfbdfb dfb dfb dbf df
